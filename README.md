@@ -1,1 +1,1 @@
-# Birthday my friend
+# It's my friend's birthday
